@@ -7,5 +7,4 @@ Na escola, estou aprendendo as seguintes coisas 🏫
 ## Você pode me encontrar em 📧
 0001140144601sp@al.educacao.sp.gov.br
 
-
-![](https://media1.tenor.com/m/8JYrJbi0bYwAAAAd/totk-totk-zelda.gif)
+![](https://media1.tenor.com/m/dvnWlcEHGOEAAAAd/totk-tears-of-the-kingdom.gif)
